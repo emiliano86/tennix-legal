@@ -178,7 +178,7 @@ Non puoi cedere questi Termini senza il nostro consenso. Possiamo cederli in qua
 
 Per domande sui Termini, contattaci:
 
-**Email:** [TUA_EMAIL@example.com]  
+**Email:** emibossi1986@gmail.com  
 **Nome App:** Tennix  
 **Sviluppatore:** Emiliano
 

@@ -115,7 +115,7 @@ L'app non utilizza cookie, ma utilizza tecnologie simili per:
 
 Per domande su questa privacy policy o per esercitare i tuoi diritti, contattaci:
 
-**Email:** [TUA_EMAIL@example.com]  
+**Email:** emibossi1986@gmail.com  
 **Nome App:** Tennix  
 **Sviluppatore:** Emiliano
 

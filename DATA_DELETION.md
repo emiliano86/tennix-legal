@@ -8,7 +8,7 @@ Se desideri cancellare il tuo account Tennix e tutti i dati associati, segui que
 
 Invia un'email a:
 
-**Email:** emiliano@tennix.app
+**Email:** emibossi1986@gmail.com
 
 **Oggetto:** Richiesta Cancellazione Account Tennix
 
@@ -88,7 +88,7 @@ Prima di cancellare l'account, considera queste alternative:
 
 Per domande o problemi con la cancellazione:
 
-**Email:** emiliano@tennix.app  
+**Email:** emibossi1986@gmail.com  
 **Risposta entro:** 48 ore
 
 ## 🇪🇺 Diritti GDPR (Utenti UE)
